@@ -16,5 +16,5 @@
 
 [spacehey!!](https://spacehey.com/profile?id=2667898)          ![7f6382f1](https://github.com/karmagisa/karmagisa/assets/167344508/a37f1461-3232-46dc-9576-ca41663ca08a)
 
-[patreon!!](patreon.com/nagikien) ![315ed8a5](https://github.com/karmagisa/karmagisa/assets/167344508/d6562bdd-10d3-4d7e-bbba-f8f4491f9c98)
+[patreon!!](https://patreon.com/nagikien) ![315ed8a5](https://github.com/karmagisa/karmagisa/assets/167344508/d6562bdd-10d3-4d7e-bbba-f8f4491f9c98)
 
