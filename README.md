@@ -9,7 +9,7 @@
 [spacehey!!](https://spacehey.com/profile?id=2667898)          ![e7605e81](https://github.com/karmagisa/karmagisa/assets/167344508/55b7fb86-e0d6-46c0-99c8-da7785cd1a8d)
 
 
-[patreon!!](https://patreon.com/nagikien)            ![346ac0e9](https://github.com/karmagisa/karmagisa/assets/167344508/f2ae2767-6192-47a5-9eb3-154f89f5c9ff)
+[rentry!!](https://rentry.co/lookathestars)            ![346ac0e9](https://github.com/karmagisa/karmagisa/assets/167344508/f2ae2767-6192-47a5-9eb3-154f89f5c9ff)
 
 [atabook!!](https://karmagisa.atabook.org/)            ![806f77cb](https://github.com/karmagisa/karmagisa/assets/167344508/d565735b-f28b-4f1b-bf2d-8729321f1b1a)
 
