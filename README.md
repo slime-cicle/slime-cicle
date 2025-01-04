@@ -23,7 +23,6 @@
 [strawpage!!](https://starofthenight.straw.page/)        ![de3e7d97](https://github.com/user-attachments/assets/7e2f7de8-c697-48e0-adbe-09dc677edcd5)
 
 
-[my tree!!](https://colormytree.me/2024/01JEVTC5MMBRXS84WQVKQQJDHC)  ![de3e7d97](https://64.media.tumblr.com/76a9587da7e8ea49a265cf690bda8738/ec2fe971b0fa2a3b-38/s75x75_c1/7d40549ec7b65a9c6ee1007f2e78d54db0a6fc69.gifv)
 
 
 
