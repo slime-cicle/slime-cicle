@@ -20,7 +20,7 @@
 
 
 
-[strawpage!!](https://starofthenight.straw.page/)        ![de3e7d97](https://github.com/user-attachments/assets/7e2f7de8-c697-48e0-adbe-09dc677edcd5)
+[strawpage!!](https://crossnecklace.straw.page)        ![de3e7d97](https://github.com/user-attachments/assets/7e2f7de8-c697-48e0-adbe-09dc677edcd5)
 
 
 
