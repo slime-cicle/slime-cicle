@@ -30,7 +30,7 @@
 [rentry!!](https://rentry.co/lookathestars)           ![273](https://github.com/user-attachments/assets/bc92431f-1453-42cc-8e7f-dd5130e6eefb)
 
 
-[atabook!!](https://kazusoda.atabook.org/)       ![318](https://github.com/user-attachments/assets/8f32d2fd-c04a-4608-8533-b83bef5a3604)
+[atabook!!](https://thangyuu.atabook.org/)       ![318](https://github.com/user-attachments/assets/8f32d2fd-c04a-4608-8533-b83bef5a3604)
    
 
 
