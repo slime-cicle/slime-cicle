@@ -9,4 +9,5 @@
 
 
 
-![Screenshot_2024-06-24_130231-removebg-preview](https://github.com/karmagisa/karmagisa/assets/167344508/32ab4d7c-edbc-4ce4-a560-03271bce5737)
+![342312875-32ab4d7c-edbc-4ce4-a560-03271bce5737](https://github.com/user-attachments/assets/fb2d9dba-aa9d-4959-9a36-b72fd9232523)
+
