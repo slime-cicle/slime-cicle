@@ -1,4 +1,4 @@
-‎ ‎ [strawpage!!](https://crossnecklace.straw.page) ![de3e7d97](https://xyz.crd.co/assets/images/gallery15/e0f43c2e.gif?v=de6feabd)      ‎ ‎‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ [rentry!!](https://rentry.co/thangyu-yaoi)           ![273](https://xyz.crd.co/assets/images/gallery15/9e0508fb.gif?v=de6feabd)       ‎ ‎‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ [atabook!!](https://thangyuu.atabook.org/) ![pixl](https://xyz.crd.co/assets/images/gallery05/e54bb4ca.gif?v=de6feabd)         ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎‎ ‎ _view in light mode♡_
+‎ ‎ [strawpage!!](https://crossnecklace.straw.page) ![de3e7d97](https://xyz.crd.co/assets/images/gallery15/e0f43c2e.gif?v=de6feabd)      ‎ ‎‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ [rentry!!](https://rentry.co/thangyu-yaoi)           ![273](https://xyz.crd.co/assets/images/gallery15/9e0508fb.gif?v=de6feabd)       ‎ ‎‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ [atabook!!](https://thangyuu.atabook.org/) ![pixl](https://xyz.crd.co/assets/images/gallery05/e54bb4ca.gif?v=de6feabd)         ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ _view in light mode♡_
 
 ![me and](https://github.com/user-attachments/assets/df2b8d56-037f-4f90-89b1-1e6b62838eb4)
 
