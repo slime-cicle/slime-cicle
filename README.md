@@ -1,13 +1,9 @@
-‎ ‎ [strawpage!!](https://crossnecklace.straw.page) ![de3e7d97](https://xyz.crd.co/assets/images/gallery15/e0f43c2e.gif?v=de6feabd)      ‎ ‎‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ [rentry!!](https://rentry.co/thangyu-yaoi)           ![273](https://xyz.crd.co/assets/images/gallery15/9e0508fb.gif?v=de6feabd)       ‎ ‎‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ [atabook!!](https://thangyuu.atabook.org/) ![pixl](https://xyz.crd.co/assets/images/gallery05/e54bb4ca.gif?v=de6feabd)         ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ _view in light mode♡_
 
-![me and](https://github.com/user-attachments/assets/df2b8d56-037f-4f90-89b1-1e6b62838eb4)
-
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ![meee](https://i.postimg.cc/zGfBLwK9/Senza-titolo-476-20250217150335.png)
 
 
-![tumblr_e1444a22c47155eebcde9ccc904ce2dc_5f5d6efc_250](https://github.com/user-attachments/assets/c30f518d-6633-41d9-8aff-9075b4e5072f)![tumblr_e1444a22c47155eebcde9ccc904ce2dc_5f5d6efc_250](https://github.com/user-attachments/assets/c30f518d-6633-41d9-8aff-9075b4e5072f)![tumblr_e1444a22c47155eebcde9ccc904ce2dc_5f5d6efc_250](https://github.com/user-attachments/assets/c30f518d-6633-41d9-8aff-9075b4e5072f)
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ [strawpage!!](https://crossnecklace.straw.page) ![de3e7d97](https://xyz.crd.co/assets/images/gallery15/e0f43c2e.gif?v=de6feabd)      ‎ ‎‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry!!](https://rentry.co/thangyu-yaoi)          ‎ ‎ ‎  ![273](https://xyz.crd.co/assets/images/gallery15/9e0508fb.gif?v=de6feabd)       ‎ ‎‎ ‎ ‎ ‎ ‎ ‎     ‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook!!](https://thangyuu.atabook.org/) ![pixl](https://xyz.crd.co/assets/images/gallery05/e54bb4ca.gif?v=de6feabd)         ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ _og art by @vampiricrodeo♡_ 
+  
 
 
-
-
-![342312875-32ab4d7c-edbc-4ce4-a560-03271bce5737](https://github.com/user-attachments/assets/fb2d9dba-aa9d-4959-9a36-b72fd9232523)
 
