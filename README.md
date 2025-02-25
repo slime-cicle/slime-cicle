@@ -5,16 +5,16 @@
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ 
-‎ ![meee](https://i.postimg.cc/zGfBLwK9/Senza-titolo-476-20250217150335.png)
+ ‎   ‎  ‎ ![meee](https://i.postimg.cc/zGfBLwK9/Senza-titolo-476-20250217150335.png)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <p align="center">
-![ezgif-6b02eb7b06e5e6](https://github.com/user-attachments/assets/8676179e-3a90-45b0-af09-c56f456cec76) ‎ ‎ ‎  ‎ ‎‎ _he / him ‎ ‎ , ‎ ‎ c+h is ok_
-
-
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎![ezgif-6b02eb7b06e5e6](https://github.com/user-attachments/assets/8676179e-3a90-45b0-af09-c56f456cec76) ‎ ‎ ‎  ‎ ‎‎ _he / him ‎ ‎ , ‎ ‎ c+h is ok_
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <p align="center">
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎_og art by @vampiricrodeo♡‎ ‎ ,‎ ‎ view on pc_ 
   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎
 ‎ ‎ 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <p align="center">
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31t5fflrq6vtb6ln5hhrmxyp77ym&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&bar_color=8ca28b&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-_og art by @vampiricrodeo♡‎ ‎ ,‎ ‎ view on pc_ 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31t5fflrq6vtb6ln5hhrmxyp77ym&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=false&bar_color=8ca28b&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)  ‎ ‎ 
+
   
 
 
