@@ -5,9 +5,9 @@
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎<p align="center">
- ‎   ‎                ‎ ‎              ‎ ‎   ‎ ‎    ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎   ‎ ‎ ‎   ‎ ‎  ![meee](https://i.postimg.cc/zGfBLwK9/Senza-titolo-476-20250217150335.png)
+ ‎   ‎                ‎ ‎              ‎ ‎   ‎ ‎    ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎   ‎ ‎ ‎   ‎ ‎  ![meee](https://i.postimg.cc/GmwFK1MN/Senza-titolo-488-20250227225945.png)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <p align="center">
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎![ezgif-6b02eb7b06e5e6](https://github.com/user-attachments/assets/8676179e-3a90-45b0-af09-c56f456cec76) ‎ ‎ ‎  ‎ ‎‎ _he / him ‎ ‎ , ‎ ‎ c+h is ok_
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎![ezgif-6b02eb7b06e5e6](https://external-media.spacehey.net/media/s4wz3o3j6PQtEVjGjfJkhwXD1O2QgZLOU68hqn2XJlZY=/https://i.ibb.co/5RLm6Gf/16cat.gif) ‎ ‎ ‎  ‎ ‎‎ _he / him ‎ ‎ , ‎ ‎ c+h is ok_
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <p align="center">
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎‎‎ ‎ og art by @vampiricrodeo♡‎ ‎ ,‎ ‎ _view on pc_ 
   ‎ ‎‎ ‎   ‎ ‎‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎
