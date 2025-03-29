@@ -1,5 +1,5 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <p align="center">
-[strawpage!!](https://craigsoda.straw.page)‎  ‎ ![IMG-9264](https://64.media.tumblr.com/db55b028950ccc02443c58705d88068d/e5c22b7d157abbd8-2a/s75x75_c1/0a588c40eff24d7fd53ce2c54a05d2671fbbc665.gifv) ‎ ‎ [rentry!!](https://rentry.co/soudam-yaoi) ![9e0508fb](https://gifcity.carrd.co/assets/images/gallery94/bd643b18.png?v=a5c82efa)‎‎  ‎ [atabook!!](https://larrycroft.atabook.org/)![pixl](https://gifs.crd.co/assets/images/gallery25/764df9f9.gif?v=ef433a6f)
+[strawpage!!](https://craigsoda.straw.page)‎  ‎ ![IMG-9264](https://64.media.tumblr.com/db55b028950ccc02443c58705d88068d/e5c22b7d157abbd8-2a/s75x75_c1/0a588c40eff24d7fd53ce2c54a05d2671fbbc665.gifv) ‎ ‎ [rentry!!](https://rentry.co/soudam-yaoi) ![9e0508fb](https://gifcity.carrd.co/assets/images/gallery94/bd643b18.png?v=a5c82efa)‎‎  ‎ [atabook!!](https://larrycroft.atabook.org/)![pixl](https://biscuit.crd.co/assets/images/gallery02/9d01cc5b.gif?v=532faf5f)
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎<p align="center">
