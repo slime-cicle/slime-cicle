@@ -3,7 +3,7 @@
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎<p align="center">
- ‎   ‎                ‎ ‎              ‎ ‎   ‎ ‎    ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎   ‎ ‎ ‎   ‎ ‎  ‎ ‎                 ‎  ‎  ‎  ‎ ‎ ‎ <img src="https://files.catbox.moe/y1o5mo.png" width="500">
+ ‎   ‎                ‎ ‎              ‎ ‎   ‎ ‎    ‎ ‎   ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎   ‎ ‎   ‎ ‎   ‎   ‎ ‎ ‎   ‎ ‎  ‎ ‎                 ‎  ‎  ‎  ‎ ‎ ‎ <img src="https://i.postimg.cc/ZYLFznZC/Screenshot-2025-05-16-183649.png" width="500">
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <p align="center">
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎![ezgif-6b02eb7b06e5e6](https://files.catbox.moe/3u4bmy.png) ‎ ‎ ‎  ‎ ‎‎ _he / him ‎ ‎ , ‎ ‎ c+h is ok_
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <p align="center">
