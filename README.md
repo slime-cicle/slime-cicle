@@ -12,12 +12,13 @@
   
 <p align="center">
  
- ![ezgif-6b02eb7b06e5e6](https://mountaintown.neocities.org/stamps/kids/kenny%20(6).png) ‎ ‎ ‎  ‎ ‎‎ _he / him ‎ ‎ ︵ ‎ ‎ c+h is ok_
+![ezgif-6b02eb7b06e5e6](https://mountaintown.neocities.org/stamps/kids/kenny%20(6).png) ‎ ‎ ‎  ‎ ‎‎ _he / him ‎ ‎ ︵ ‎ ‎ c+h is ok_
 </div>
  
 <div align="center">
  
-og art by @swagveryswagamazinf ♡‎ ‎ 。‎ _view on pc_  <br>
+og art by @swagveryswagamazinf ♡‎ ‎ 。‎ _view on pc_
+</div>
 ‎ ‎ 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ <div align="center">
  
