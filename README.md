@@ -6,7 +6,7 @@
 
 <div align="center">
  
-<sub> [strawpage](https://oceanicdisease.straw.page)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/slimeccicle)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://larrycroft.atabook.org/)  </sub>
+ [strawpage](https://oceanicdisease.straw.page)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/slimeccicle)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://larrycroft.atabook.org/)
 </div>
 
 
