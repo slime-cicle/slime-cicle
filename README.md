@@ -11,7 +11,7 @@
 ‎ 
 <div align="center">
 
-<img src="https://i.postimg.cc/Fsd7MKyL/tumblr-234515d032246ea405d6ff9f9298f796-ca5f615d-1280-removebg-preview.png" width="200">
+<img src="https://i.postimg.cc/NjV1FQKp/Gwu3p-GVXw-AAjdof-removebg-preview.png" width="250">
 </div>
 
 <div align="center">
