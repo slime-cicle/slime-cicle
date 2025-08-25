@@ -16,7 +16,7 @@
 
 <div align="center">
  
- [strawpage](https://slimeccicle.straw.page)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/slimeccicle)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://larrycroft.atabook.org/)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [squad](https://rentry.co/sprunkigang)
+ [strawpage](https://slimeccicle.straw.page)‎ ‎ ‎ ‎ ‎ ‎ ‎ [rentry](https://rentry.co/slimeccicle)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [atabook](https://larrycroft.atabook.org/)‎‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ [matching](https://rentry.co/-southpark)
 </div>
 ‎ 
 ‎ 
